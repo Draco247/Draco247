@@ -1,5 +1,5 @@
 # 💫 About Me:
-Daniel Enabulele| Computer Science graduate @BrunelUniversityLondon
+Daniel Enabulele | Computer Science graduate @BrunelUniversityLondon
 
 
 ## 🌐 Socials:
